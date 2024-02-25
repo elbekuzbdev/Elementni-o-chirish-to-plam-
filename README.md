@@ -1,0 +1,1 @@
+# Elementni-o-chirish-to-plam-
